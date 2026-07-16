@@ -1,1 +1,0 @@
-# made outside Zero Studio
